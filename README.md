@@ -1,4 +1,4 @@
-# Hi there, I'm Margarita 👋
+# Hi there, I'm Magarote 👋
 
 ![Profile views](https://gpvc.arturio.dev/margarote)
 
